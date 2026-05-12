@@ -1,4 +1,4 @@
-# 
+# Get the ultimate CapCut for macOS overlay with CapCut for macOS custom Overlay: glitch-effect & text-animation. Featuring glitch-effect and text-animation, it's the best choice
 
 
 
